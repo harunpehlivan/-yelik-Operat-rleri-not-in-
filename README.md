@@ -1,0 +1,1 @@
+# Üyelik Operatörleri not in 
